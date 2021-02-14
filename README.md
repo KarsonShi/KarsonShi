@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KarsonShi
+- 👀 I’m interested in Aviation
+- 🌱 I’m currently learning Hackintosh
+- 📫 How to reach me---Email: 3309539853@qq.com
